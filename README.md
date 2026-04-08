@@ -1,2 +1,0 @@
-# Golpea-y-avanza
-Badminton
